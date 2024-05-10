@@ -7,4 +7,7 @@ Meu nome é Isabella Horrara
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
   ### Você entrar em contato comigo 📧
-   
+
+   isabellahorrara10@gmail.com
+
+  @euisaahs
